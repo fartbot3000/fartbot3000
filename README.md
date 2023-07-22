@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fartbot3000
+- 👀 I’m interested in, How to sex
+- 🌱 I’m currently learning, Sexed
